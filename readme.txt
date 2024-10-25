@@ -1,3 +1,5 @@
+Credit Share : Valnought
+
 🤙ENGLISH: 
 ⚠️This is a file for xeon bug bot free users, so the bot access is limited.
 ⚠️You can acccess the bot every evening between 4pm to 6pm Indian standard time. In indonesia the given time is the time when you can access the bot.
